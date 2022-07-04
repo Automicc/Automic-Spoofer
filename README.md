@@ -6,7 +6,7 @@ The new modern Hwid Spoofer & change Your All hardware, Permanently Unbanned & a
 
 # Features
 
-[ HARDWARE ID ] 
+> [ HARDWARE ID ] 
 [ CPU SERIAL ]
 [ MOTHERBOARD SERIAL ] 
 [ SMBIOS SERIAL  ]
